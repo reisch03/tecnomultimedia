@@ -1,2 +1,2 @@
 # tecnomultimedia
-Trabajo práctico 0, Matías Mariescurrena, Comisión 1
+Trabajos prácticos , Matías Mariescurrena, Comisión 1
